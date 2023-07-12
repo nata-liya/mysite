@@ -16,5 +16,7 @@
 ![404](https://github.com/nata-liya/mysite/assets/107669981/a6157df4-2311-4a69-a336-d3b5f3f472ec)
 ![4im](https://github.com/nata-liya/mysite/assets/107669981/310f0fa6-7f16-4570-8463-833819472edd)
 ![3im](https://github.com/nata-liya/mysite/assets/107669981/cde8cb84-647e-465c-89b0-8116383b262f)
+![WhatsApp Image 2023-07-12 at 1 04 49 PM](https://github.com/nata-liya/mysite/assets/107669981/76f92189-b5bb-4ecf-9750-0574ce214764)
+
 ![2im](https://github.com/nata-liya/mysite/assets/107669981/5eb93e86-c93f-43d4-9c1e-15dcef16a9f4)
 ![1im](https://github.com/nata-liya/mysite/assets/107669981/adba7d06-6999-4b1e-9314-9c547cbe8808)
