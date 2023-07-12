@@ -20,3 +20,4 @@
 
 ![2im](https://github.com/nata-liya/mysite/assets/107669981/5eb93e86-c93f-43d4-9c1e-15dcef16a9f4)
 ![1im](https://github.com/nata-liya/mysite/assets/107669981/adba7d06-6999-4b1e-9314-9c547cbe8808)
+![WhatsApp Image 2023-07-12 at 1 04 49 PM (2)](https://github.com/nata-liya/mysite/assets/107669981/a0f2c270-33f9-4162-b734-988503f2e237)
